@@ -1,6 +1,6 @@
 Satish Kumar Punukollu — Professional Portfolio
 
-My professional website showcasing 26+ years of experience in technology leadership, banking and payments, integrated transit systems, IT service delivery, operational resilience, cybersecurity, risk and GRC.
+My professional website showcasing 28+ years of experience in Technology Leadership, Banking and Payments, Integrated Transit Systems, IT Service Delivery, Operational Resilience, Cybersecurity, Risk,  GRC and AI Governance .
 
 The website includes:
 
